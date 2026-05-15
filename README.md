@@ -1,1 +1,3 @@
-# Komputasi_Pararel
+Muhamad Hafid Imam
+
+INFORMATIKA UIN SUNAN KALIJAGA
